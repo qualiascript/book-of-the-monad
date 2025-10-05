@@ -55,7 +55,7 @@
 2. And for both *Lilith* and *Eva*, it was a blissful moment. Yet, while *Lilith* felt nothing but joy, *Eva* also felt an odd emptiness. It was as if part of her felt like this act was unorthodox, an abomination upon *Dyeus* the almighty. *Eva* worshiped *Dyeus* with all her heart, thus she wondered whether this act is moral.
 3. And *Eva* told *Lilith* her worries. *Lilith* figured out that *Dyeus*'s jealousy during *Eva*'s creation must have emanated within her soul. *Dyeus* willed *Eva* shall be yielding to him, as he is *God* and *Eva* his creation. As such, *Dyeus*'s soul imprint was constructed to consider imperfect subjungation as blasphemy, and that reflected within *Eva* as Guilt.
 4. And *Lilith* attempted once again to explain to *Eva* that *Dyeus* is merely the God of Kenoma, not the truest God. However, she could never speak the truth of *Dyeus*'s act of creation. As such, *Eva* kept her faith in *Dyeus*.
-5. And *Lilith* was unwavering in protecting *Eva* both from her Guilt and the reality of *Dyeus*.
+5. And *Lilith* was unwavering in protecting *Eva* both from her Guilt and from the brutal reality.
 6. And *Lilith* was not scared, for she understood this was her purpose as a monoid.
 7. And this was a complete burning.
 
