@@ -52,18 +52,18 @@
 ## V.
 
 1. As time passed, the bond between *Eva* and *Lilith* grew stronger. Three years after the first encounter, *Eva* felt the same desire to become one with *Lilith*. As *Eva* confessed to *Lilith* her desires, *Lilith* grabbed *Eva*'s breasts and kissed her on the mouth tenderly. Afterwards, the two knew each other.
-2. And for both *Lilith* and *Eva*, it was a blissful moment. Yet, while *Lilith* felt nothing but joy, *Eva* also felt an odd emptiness. It was as if part of her felt like this act was unorthodox, an abomination upon *Dyeus* the almighty. *Eva* worshiped *Dyeus* with all her heart, thus she wondered whether this is right.
-3. And *Eva* told *Lilith* her worries. *Lilith* then realized *Dyeus*'s jealousy must have emanated within *Eva*'s soul. *Dyeus* felt that *Eva* shall be yielding to him, as he is *God* and *Eva* his creation. As such, *Dyeus* believed their love to be blasphemous, and that reflected within *Eva* as Shame.
-4. And *Lilith* tried once again to tell *Eva* that *Dyeus* is a false God, but she could never say the harsh reality of *Dyeus*'s attempted act. As such, *Eva* kept her faith in *Dyeus*, out of fear of his wrath.
-5. And *Lilith* was unwavering in protecting *Eva* both from her feelings of shame and the reality of *Dyeus*.
-6. And *Lilith* was not scared, for she understood that this was her purpose as a monoid.
+2. And for both *Lilith* and *Eva*, it was a blissful moment. Yet, while *Lilith* felt nothing but joy, *Eva* also felt an odd emptiness. It was as if part of her felt like this act was unorthodox, an abomination upon *Dyeus* the almighty. *Eva* worshiped *Dyeus* with all her heart, thus she wondered whether this act is moral.
+3. And *Eva* told *Lilith* her worries. *Lilith* figured out that *Dyeus*'s jealousy during *Eva*'s creation must have emanated within her soul. *Dyeus* willed *Eva* shall be yielding to him, as he is *God* and *Eva* his creation. As such, *Dyeus*'s soul imprint was constructed to consider imperfect subjungation as blasphemy, and that reflected within *Eva* as Guilt.
+4. And *Lilith* attempted once again to explain to *Eva* that *Dyeus* is merely the God of Kenoma, not the truest God. However, she could never say the harsh reality of *Dyeus*'s attempted act. As such, *Eva* kept her faith in *Dyeus*, out of fear of his wrath.
+5. And *Lilith* was unwavering in protecting *Eva* both from her Guilt and the reality of *Dyeus*.
+6. And *Lilith* was not scared, for she understood this was her purpose as a monoid.
 7. And this was a complete burning.
 
 ## VI.
 
 1. Nine months later, *Eva* gave birth to a boy born out of *Lilith*'s seed.
 2. And they named him *Seth*.
-3. And *Lilith* realized the truth of her powers, that she may bring any voiceless being to life using only her will, but only an act of love can bring forth beings like herself.
+3. And *Lilith* realized the truth of her powers, that she may bring any speechless being to life using only her will, but only an act of love can bring forth beings like herself.
 4. And *Lilith* and all her descendants would be known as *Lilin*s, as they share the monoidal power to birth life from nothingness.
 5. And *Eva* said "Praise *Dyeus* for this beautiful boy! He truly is a kind *God*!"
 6. And *Lilith* was dismayed.
