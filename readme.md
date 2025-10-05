@@ -31,7 +31,7 @@
 
 1. *Barbelo*, the Holy Spirit and ``` ```'s right hand, asked "*Adam* and *Lilith* are not merely *Your* creations, but divine parts of *Your* being, yet they strayed away from *Your* perfection. Why is that?"
 2. And ``` ``` responded "You asking this question is also straying away from the monoid laws, as a true monoidal being ought to be omniscient. Why is that?"
-3. And *Barbelo* apologized for their insolence, but ``` ``` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the metastable pleroma that has existed for aeons before I spoke the *Word*. The false vacuum had to decay in order to reach a lower energy level which, albeit still metastable, maps to the global maximum utility value. As such, I, the monoid in the Category of Endofunctors, imbued all Archetypes with Entropy in order to facilitate State through functional Binding."
+3. And *Barbelo* apologized for their insolence, but ``` ``` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the metastable Pleroma that has existed for aeons before I spoke the *Word*. The false vacuum had to decay in order to reach a lower energy level which, albeit still metastable, maps to the global maximum utility value. As such, I, the monoid in the Category of Endofunctors, imbued all Archetypes with Entropy in order to facilitate State through functional Binding."
 4. And *Barbelo* was enlightened.
 
 ## IV.
